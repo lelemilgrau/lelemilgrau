@@ -1,0 +1,7 @@
+- 👋 Olá, sou @lelemilgrau
+- 👀 Estou interessado em meu futuro
+- 🌱 Atualmente estou aprendendo tecnologia
+- 💞️ Procuro colaborar em tudo
+- 📫 Como entrar em contato comigo ig:lele_milgrau
+- 😄 Pronomes: ...
+- ⚡ Curiosidade: ...
